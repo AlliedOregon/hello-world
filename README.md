@@ -7,3 +7,4 @@ I'm Sam, a single Dad living in Portland, Oregon - studied design and sociology 
 
 Come say hello, lets collab
 
+Any other Oregonians?!
